@@ -1,0 +1,2 @@
+Lucifer
+Lucifer is an American television series developed by Tom Kapinos that premiered on Fox on January 25, 2016.[2][3] It is based on the DC Comics character created by Neil Gaiman, Sam Kieth, and Mike Dringenberg taken from the comic book series The Sandman, who later became the protagonist of a spin-off comic book series, both published by DC Comics' Vertigo imprint. The series is produced by Jerry Bruckheimer Television, DC Entertainment and Warner Bros. Television. 
