@@ -1,0 +1,5 @@
+Made in Abyss
+
+Fecha de estreno: 7 de julio de 2017
+
+La historia se centra en Riko, una joven huérfana que vive en la ciudad de Orth, en una isla en el mar de Beoluska. La ciudad rodea a un extraño agujero gigante cuyo fondo se dirige a las profundidades de la tierra. Dicho agujero es conocido como el Abismo. Dentro del Abismo se encuentran misteriosos artefactos abandonados y restos de una civilización avanzada que desapareció hace milenios y es por tanto un sitio explorado por excavadores cazarrecompensas denominados Cave Raiders (asalteadores de cavernas), quiénes emprenden descensos arduos y peligrosos para obtener todas las reliquias que puedan encontrar. Además de la monstruosa fauna y flora, los Cave Raiders deben enfrentarse a un gran mal que los afecta cuanto más profundamente desciendan dentro del Abismo, donde una sucesión de capas ejercen una presión que los aflige y enferma progresivamente de manera fatal. 
